@@ -1,3 +1,7 @@
+2021-04-24
+
+* How Will You Measure Your Life?, by Clayton Christensen - I came across the TedX - Boston talk
+
 2021-04-12
 
 * 'Tarzan Economics: Eight Principles for Pivoting Through Disruption', by Will Page - recommended by Financial Times
