@@ -1,6 +1,7 @@
 2021-04-24
 
 * How Will You Measure Your Life?, by Clayton Christensen - I came across the TedX - Boston talk
+* Different ESCAPING THE COMPETITIVE HERD By YOUNGME MOON - This is from HBR After Hours host
 
 2021-04-12
 
