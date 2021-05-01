@@ -1,3 +1,7 @@
+2021-04-30
+
+* The Peacemaker's Code, by Deepak Malhotra - recommeneded by HBR After Hours
+
 2021-04-24
 
 * How Will You Measure Your Life?, by Clayton Christensen - I came across the TedX - Boston talk
